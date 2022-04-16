@@ -5,7 +5,7 @@
 -->
 ### 🦝 I am a curious Front-end developer
 
-### I normaly use 🤾‍♂️ Playing with Linux
+### I normaly like 🤾‍♂️ Playing with Linux
 
 I normaly use
 
